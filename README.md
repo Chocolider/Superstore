@@ -1,3 +1,3 @@
 # Superstore
 
-## ![newplot (1)](https://github.com/user-attachments/assets/939e7b36-6c7c-404b-94a0-09f5ca8893c9)
+![newplot (2)](https://github.com/user-attachments/assets/6f62d4d9-f38f-47a2-8fe8-03c0df6df717)
